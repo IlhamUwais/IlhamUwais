@@ -8,6 +8,8 @@
 
 🥷 Saya bergerak bagaikan bayangan
 
+👨🏼‍💻 Saya adalah Programmer
+
 
 
 
